@@ -1,0 +1,1 @@
+A business with the intention to provide charitable services to it's niche who do not pay for the services they provide. Nonprofit organisations are not *for-loss* organisations, rather the accounting practices involve checking the overall donation and cost [[transactions]] made and ensuring that they are profitable to continue providing their services for free.

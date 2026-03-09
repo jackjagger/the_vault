@@ -1,0 +1,1 @@
+Managerial accounting refers to the production of accounting statements for the people part of the organisation or business and looks to see whether these statements align with the goals of the company or individual interested. These results could then be used as part of [[financial accounting]] practices to relay this information to investors and regulation bodies.

@@ -1,0 +1,1 @@
+Transactions as a term refers to both expenses that have any value or cost associated with them.

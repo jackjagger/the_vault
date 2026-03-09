@@ -1,0 +1,3 @@
+Financial accounting relates is the process of creating financial reports on behalf of individuals and corporations external to the business whose accounts are being examined. These are investors who look to see whether their investments in the business are on track to make them a profit or industry regulators who examine whether a business is abiding by the rules imposed by them.
+
+Much of the work involved in creating financial accounting documents relies on past [[transactions]] to determine profitability for external benefactors, however, estimations are also applicable to show these individuals and bodies the upcoming bad debt that may accrued which provides a more honest indication of a businesses profitability.

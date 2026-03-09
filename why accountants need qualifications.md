@@ -1,0 +1,4 @@
+An account requires qualifications for many reasons:
+1. Whether they are employed or self-employed, their certification shows that they have passed the required units to provide individuals and businesses with the right information and have learned the key accounting practices to help these individuals with respect to legislation requirements.
+2. They are respected for their dedication to their profession and are seen by both individuals with and without accounting qualifications someone capable to doing the work that requires an accounting degree.
+3. Certain types of qualifications requires prerequisite knowledge to be able to do certain types of work (CPA / CAANZ for higher up positions in industry, Bachelors Degree to do taxation and accounting for individuals)
